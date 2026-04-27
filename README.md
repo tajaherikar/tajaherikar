@@ -64,7 +64,7 @@ I’m open to collaborating on:
 
 ## 📫 Reach Me
 
-📧 tajaherikar.dev@gmail.com  
+📧 tajaherikar.dev@gmail.com ,  tajuddin.aherikar@gmail.com  
 🌐 https://tajaherikar.github.io/portfolio-tajuddin-aherikar-software-developer/
 
 ---
